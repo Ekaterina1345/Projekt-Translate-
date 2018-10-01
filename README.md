@@ -1,1 +1,2 @@
-# Projekt-Translate-
+# https://vk.com/doc159233995_476902454?hash=f682566b1d1706df70&dl=fd3e7d2b08fd1c996b
+# https://vk.com/doc159233995_476916762?hash=5802287689de50e9e3&dl=91e25b222642944548
